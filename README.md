@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Solo-life
+- 👀 I’m interested in learning more and growing at my domain
+- 🌱 I’m currently learning Python
+- 📫 How to reach me ezor.star@gmail.com
